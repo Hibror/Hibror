@@ -20,7 +20,7 @@ Atualmente trabalho como **Analista de Tráfego na Central IT** e sou estudante 
 ---
 
 ### 📫 Como me encontrar:
-- [Meu LinkedIn](https://www.linkedin.com/in/jeph-lima-43b209388/)
+- [Meu LinkedIn](https://www.linkedin.com/in/jefferson-lima-6a4b87278/)
 - [Meu Instagram](https://www.instagram.com/jeph_lima/)
 
 ---
